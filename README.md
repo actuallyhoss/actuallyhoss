@@ -1,1 +1,1 @@
-⚡ Discord: `Hoss#0001`
+⚡ Discord: `a.hoss`
